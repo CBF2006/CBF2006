@@ -1,4 +1,4 @@
-- 👋 Hi, I’m CBF!
+- 👋 Hi, I’m Collin! I go by CBF online
 - 👀 I’m interested in gaming, coding, kpop, anime, music, aviation, and more!
 - 🌱 I’m currently learning NextJS, as well as Japanese and Korean 🇯🇵🇰🇷
 - 💞️ I’m looking to collaborate on anything cool!
